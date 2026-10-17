@@ -1,6 +1,6 @@
 <img width="850" height="377" alt="Screenshot 2026-10-16 032254" src="https://github.com/user-attachments/assets/05bfcb97-92eb-4c11-ba4b-1e049635d988" />
 
-https://1drv.ms/w/c/ACEA0258ECD9ACB9/IQAEYIF96S20QZfZkaQrEJNjAfkDiqynazQyE4Cxg6XbUtg?e=gjXhiN
+https://docs.google.com/document/d/10qDCW-30_jKNWY8ZG26zmDt3-m5GAU51JAk0DCdoFHk/edit?usp=sharing
 
 Penjelasan Fitur Bagian C
 
